@@ -1,2 +1,2 @@
 # Quotes
-"Compair yoursef to who you were yesterday".
+"COMPAIR YOURSELF TO WHO YOU WERE YESTERDAY."
